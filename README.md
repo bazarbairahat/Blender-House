@@ -1,1 +1,1 @@
-# i made it muself Blender-House
+# I made it muself Blender-House
